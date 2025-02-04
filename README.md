@@ -1,2 +1,1 @@
-# Tipemirate.com
-Portfolio 
+
